@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Aadarkwah
+- 👀 I’m interested in being humna first
+- 🌱 I’m currently learning as much as I can
+- 💞️ I’m looking to collaborate on processes and optimziation
+- 📫 How to reach me ...
